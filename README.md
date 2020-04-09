@@ -1,2 +1,3 @@
 # hello-world
 practice, practice, practice...
+I'm writing this on a cold rainy day in Connecticut, laid low, but recovering from (maybe the famous) virus.  Lots of time, not so much concentration.
